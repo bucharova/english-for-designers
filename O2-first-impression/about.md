@@ -12,3 +12,4 @@ I like the fact that after training you put on your make-up and leave looking li
 
 
 <img src="https://github.com/bucharova/english-for-designers/assets/" width=30% height=30%>
+<img https://github.com/bucharova/english-for-designers/assets/150127129/954acabb-e4cd-463e-bc54-27d319284add width=30% height=30%> 
