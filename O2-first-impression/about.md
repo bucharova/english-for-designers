@@ -11,5 +11,5 @@ At my free time you can meet me in the gallery, but also at rave or gym. I have 
 I like the fact that after training you put on your make-up and leave looking like a lady. I also love cooking so there's no way of being hungry at my home.
 
 
-<img src="https://github.com/bucharova/english-for-designers/assets/150127129/954acabb-e4cd-463e-bc54-27d319284" width=30% height=30%>
-<img https://github.com/bucharova/english-for-designers/assets/150127129/954acabb-e4cd-463e-bc54-27d319284add width=30% height=30%> 
+
+![IMG_269c](https://github.com/bucharova/english-for-designers/assets/150127129/425972a1-50c6-4c69-a334-b83c549d73a6)
