@@ -4,4 +4,8 @@
 - [Featured Projects](#featured-projects)
 - [Notes](#notes)
 
-- [readme.md](readme.md) 
+## Portfolio
+
+-[About](About.md)
+-[Writing](Writing.md)
+-[Work](Work.md)
