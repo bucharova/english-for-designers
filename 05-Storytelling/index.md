@@ -20,5 +20,9 @@ But my favorite part of the trip was when I went on a desert safari. We drove ar
 
 ![dessert](https://github.com/bucharova/english-for-designers/assets/150127129/88cfd4bf-d12d-4d4b-adc7-6d668505927d)
 
+I must say that in general Dubai is very interesting because of the activities and experiences it offers. I don't know if this is because it is a rather young emirate, also like other ones (Abu Dhabi, Oman,..) But dubai have almost zero history, they inspired a lot by america, so they dont have like same typical local food. They have steakhouses, america fast food and turkish/lebanons cousine or indian cuisine - so mane indians people moved there for jobs. Its almost like modern slavery, because the have like 30people at shop. One just sayin hi, other goodbye, another smiling, one packing your bags,...crazy. Jobs for everything. Everyone speaking english at city. 
+
+![Uploading activities.jpg…]()
+
 
 
