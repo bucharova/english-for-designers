@@ -24,7 +24,8 @@ I must say that in general Dubai is very interesting because of the activities a
 
 ![activities](https://github.com/bucharova/english-for-designers/assets/150127129/8242cf9b-a4ce-40ce-9573-17ad93138bbc)
 
-I don't know if this is because it is a rather young emirate, also like other ones (Abu Dhabi, Oman,..) But dubai have almost zero history, they inspired a lot by america, so they dont have like same typical local food. They have steakhouses, america fast food and turkish/lebanons cousine or indian cuisine - so mane indians people moved there for jobs. Its almost like modern slavery, because the have like 30people at shop. One just sayin hi, other goodbye, another smiling, one packing your bags,...crazy. Jobs for everything. Everyone speaking english at city. 
+I don't know if this is because it is a rather young emirate, also like other ones (Abu Dhabi, Oman,..) But dubai have almost zero history, they inspired a lot by america, so they dont have like same typical local food. They have steakhouses, america fast food and turkish/lebanons cousine or indian cuisine - so mane indians people moved there for jobs. Its almost like modern slavery, because the have like 30people at shop. One just sayin hi, other goodbye, another smiling, one packing your bags,...crazy. Jobs for everything. 
+
 
 
 
