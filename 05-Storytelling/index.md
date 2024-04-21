@@ -26,6 +26,8 @@ I must say that in general Dubai is very interesting because of the activities a
 
 I don't know if this is because it is a rather young emirate, also like other ones (Abu Dhabi, Oman,..) But dubai have almost zero history, they inspired a lot by america, so they dont have like same typical local food. They have steakhouses, america fast food and turkish/lebanons cousine or indian cuisine - so mane indians people moved there for jobs. Its almost like modern slavery, because the have like 30people at shop. One just sayin hi, other goodbye, another smiling, one packing your bags,...crazy. Jobs for everything. 
 
+As the last one, I would like to mention that the security in Dubai provides maximum comfort for visiting this country.
+
 
 
 
