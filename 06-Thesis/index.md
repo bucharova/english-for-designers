@@ -24,3 +24,6 @@ Target groups with homemade production typically appreciate handcraft, originali
 Engagement in the local community can be another way to reach the homemade production group. Participation in local markets, public events, and support for local charitable organizations helps build reputation and relationships with this market segment. Groups interested in homemade production are often active on social media and online communities focused on handcrafts. This is suitable for community building, where inspiration and stories can be shared to engage this group.
 
 My solution is a diametrically different label design than other companies on czech market. Its colors are meant to remind you of childhood and the fantasy that the flavors of the products have.
+
+[zezentace_justin-komprimovaný.pdf](https://github.com/bucharova/english-for-designers/files/15074459/zezentace_justin-komprimovany.pdf)
+
