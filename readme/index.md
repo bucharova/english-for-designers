@@ -15,3 +15,8 @@ I like the fact that after training you put on your make-up and leave looking li
 
 
 <img src="https://github.com/bucharova/english-for-designers/assets/150127129/34d5da4a-9639-462e-a48b-adacea52589c" width=30% height=30%>
+
+
+-[About](About.md)
+-[Writing](Writing.md)
+-[Work](Work.md)
