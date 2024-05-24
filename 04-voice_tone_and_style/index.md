@@ -12,4 +12,4 @@ For the most part, I am a smiling person who radiates positive energy. But somet
 
 # Style
 
-My speech is one big mess. I'm full of technical terms and slang, and then I talk like I didn't finish elementary school. I adjust my speech according to the people I'm talking to. It sounds strange, but many of my friends are so different that they wouldn't understand each other. I'm a person who goes to the theater to the opera, the next day to a rave party, then meditates and goes jogging in the morning and mma training in the evening. It smells a bit like bipolar, but no one diagnosed it for me, so it's probably fine.
+My speech is one big mess. I'm full of technical terms and slang, and then I talk like I didn't finish elementary school. I adjust my speech according to the people I'm talking to. It sounds strange, but many of my friends are so different that they wouldn't understand each other. I'm a person who goes to the theater to the opera, the next day to a rave party, then meditates and goes jogging in the morning and MMA training in the evening. It smells a bit like bipolar, but no one diagnosed it for me, so it's probably fine.
